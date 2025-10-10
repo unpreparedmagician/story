@@ -1,0 +1,1 @@
+Na formação de feiticeiros organizada patrocinada por instituições estatais, as torres de feitiçaria são um marco na formação sistemática de novos feiticeiros. Fundadas, diante de ameaças de além das [[]]

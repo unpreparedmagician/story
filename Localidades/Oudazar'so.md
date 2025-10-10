@@ -1,0 +1,9 @@
+# Oudazar'so: Floresta do Rio Branco
+
+Floresta enorme, tomando grande parte do oeste do continente inicial da história, é dividida ao meio por um imenso rio branco, seu nome significando literalmente Floresta do Rio Branco. Não se sabe ao certo quando a exploração dessa floresta começou, no entanto, é inegável sua importância para os povos que vivem na região, e quando exportados, seus recursos são comprados por um valor expressivo. No entanto, não é possível adquirir esses recursos facilmente, sua fauna, flora e riquezas minerais é tão inextinguível quanto seus perigos, bestas predadoras, plantas que buscam seus nutrientes em seres vivos, armadilhas de tempos esquecidos é o mínimo que os caçadores que se aventuram em suas profundezas obscuras têm que estar preparados para enfrentar.
+
+A totalidade da floresta não foi desbravada, os caçadores chamam de profundezas no momento inicial da história é o limite que estão dispostos a se por em perigo para ganhar o sustento de suas famílias, muitos escolhendo permanecer nas partes mais superficiais da floresta.
+
+### Atualização 03/05/2025
+
+A floresta também tem a fama, entre arqueólogos e historiadores, de ser o túmulo de civilizações, quando mais fundo alguém entra nela, rastros de civilizações são encontrados. Quando esses rastros são analisados pode se aferir que não pertencem a mesma civilização; especialistas afirmam que devido as árvores, fungos, parasitas e outras formas de vida que preenchem a floresta com vida estão presentes desde a ancestralidade e de alguma forma desenvolveram uma manipulação livre dos [[Elementos Base]] e sucederam para prosperar. Um produto colateral desse uso dos elementos causou a preservação das estruturas.

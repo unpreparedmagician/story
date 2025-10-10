@@ -1,0 +1,6 @@
+
+# Ladrão de vontade: doença do rei
+
+Criada a partir da mistura de substâncias derivadas das profundezas de Oucadazar'so, é um fumo que toma a vontade das pessoas de perseguir seu propósito na vida (produzido utilizando a flor vermelha da [[Planta dos Desejos]] ), infame pela sua utilização em batalhas pelo trono de reinos, onde aspirantes a governantes a utilizam em seus concorrentes perderem a vontade de competir; Os efeitos não passageiros, no entanto, necessário tratamento mágico com substâncias tão difíceis de se adquirir quanto as necessárias para produzir tão má maldição, sendo necessário entrar nas profundezas de Oucadazar'so para conseguir a flor azul da planta dos desejos. A característica que torna esse fumo tão terrível é sua capacidade de se alastrar para pessoas a sua volta, igual uma doença viral, sendo necessário a quarentena de pessoas sob o efeito. Diversos reinos do continentes principal criminalizaram o uso do fumo devido ao seu risco. Agora seu uso é limitado a acordos por debaixo dos panos.
+
+Muitos reinos tem relatos de infecções massa devido a esse produto do trabalho de herboristas causados por ataques de reinos inimigos ou em disputas pelo trono, seu nome ficou conhecido popularmente como Doença do Rei em detrimento do nome utilizado por profissionais: Ladrão de Vontade que remete a principal erva para o seu preparo.

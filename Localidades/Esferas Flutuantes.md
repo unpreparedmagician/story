@@ -1,0 +1,1 @@
+As estrelas nesse mundo, são esferas que emitem algum tipo de luz muito afastadas da superfície.
