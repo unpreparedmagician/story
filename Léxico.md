@@ -1,4 +1,5 @@
 Ou = branco
+kuh = preto
 Dazar = rio
 Gan = sufixo, indica muito (em agrupamentos)
 So = Floresta
@@ -8,6 +9,7 @@ Amem = abençoada
 Kazan = Gigante
 Kan = terra
 Monsai = montanha
+lgum = lago
 'fal = sufixo, indica cidade
 'falmem = aglutinação de 'fal e Amem, sufixo usado para se referir à reinos
 
